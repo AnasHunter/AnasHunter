@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @AnasHunter
 - 👀 I’m interested in marketing/coding/politics
-- 🌱 I’m currently learning codign
+- 🌱 I’m currently learning coding 
 - 💞️ I’m looking to collaborate on any projects or communities have the same purpose as me 
 - 📫 How to reach me gharbaouianas4@gmail.com
 - 😄 Pronouns: Man
